@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-I'am João Paulo, and I'm currently living in Três Lagoas.
+I'am João Paulo, and I'm currently living in Três Lagoas/MS
 
 ## Under development
 
